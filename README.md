@@ -1,2 +1,2 @@
-# legal
+# Coming soon...
 Terms of Service, Privacy Policy, and other policies.
